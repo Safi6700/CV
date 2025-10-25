@@ -1,4 +1,5 @@
-## ABDULLAH SAFIULLAH
+![Photo](https://avatars.githubusercontent.com/u/231658904?s=400&u=1cc6690bcf39987512374bae9e84571ed4010ab9&v=4)
+## ABDULLAH SAFIULLAH 
 > Doué d'un bon sens relationnel, je suis à
 la recherche d'une nouvelle opportunité
 pour apprendre, travailler et développer
